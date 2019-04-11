@@ -1,0 +1,2 @@
+# pokecord_hack
+awkodkoawd
